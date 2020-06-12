@@ -1,1 +1,1 @@
-# GrafkomG-SA2020-Tugas2
+Heinricho Dimas Prasetya -672018181
